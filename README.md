@@ -68,3 +68,5 @@ this is such a messy wip omg (i have like,,, 5 of these i wanna make for my ocs;
 
 
 <img width="540" height="960" alt="2212965_NXHscPz2" src="https://github.com/user-attachments/assets/9a67cf0f-5c77-4060-bb06-36f2941497c1" />
+<img width="600" height="382" alt="Untitled15_20260511121724" src="https://github.com/user-attachments/assets/33791590-5924-44cc-a4bd-1ffd6e4b3cb0" />
+<img width="540" height="960" alt="2213678_0W4arsjk" src="https://github.com/user-attachments/assets/4f462f2c-4ff9-4dcc-822d-53f995bc5b14" />
