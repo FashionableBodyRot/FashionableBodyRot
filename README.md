@@ -1,5 +1,8 @@
 this is such a messy wip omg (i have like,,, 5 of these i wanna make for my ocs; im also so burnt out of drawing so most of these are probably gonna be scuffed picrews akdiwjs)
 
+<img width="736" height="256" alt="d21b6064ef2f890c73191168fdff4da0(1)" src="https://github.com/user-attachments/assets/298ee7ba-1120-4a54-a78c-584b85c20f31" />
+
+
 ***" 𝓢𝓱𝓮 𝓵𝓪𝓲𝓭 𝓱𝓮𝓻𝓼𝓮𝓵𝓯 𝓫𝓪𝓻𝓮 𝓵𝓲𝓴𝓮 𝓪𝓷 𝓪𝓷𝓲𝓶𝓪𝓵 𝓻𝓮𝓪𝓭𝔂 𝓽𝓸 𝓫𝓮 𝓭𝓲𝓼𝓼𝓮𝓬𝓽𝓮𝓭 𝓫𝓮𝓬𝓪𝓾𝓼𝓮 𝓼𝓱𝓮 𝓽𝓻𝓾𝓼𝓽𝓮𝓭 𝔂𝓸𝓾𝓻 𝓱𝓪𝓷𝓭𝓼. 𝓐𝓷𝓭 𝓲𝓷 𝓽𝓾𝓻𝓷 𝔂𝓸𝓾 𝓹𝓸𝓲𝓷𝓽𝓮𝓭 𝓪𝓷𝓭 𝓵𝓪𝓾𝓰𝓱𝓮𝓭 𝓪𝓽 𝓱𝓮𝓻 𝓶𝓸𝓼𝓽 𝓲𝓷𝓽𝓲𝓶𝓪𝓽𝓮 𝓸𝓻𝓰𝓪𝓷𝓼. "***
 
 # 𝔅𝔞𝔰𝔦𝔠 ℑ𝔫𝔣𝔬 𐔌˶ᜊ˶𐦯
