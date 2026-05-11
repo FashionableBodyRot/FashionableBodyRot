@@ -56,3 +56,4 @@ this is such a messy wip omg (i have like,,, 5 of these i wanna make for my ocs;
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 
 
+<img width="540" height="960" alt="2212965_NXHscPz2" src="https://github.com/user-attachments/assets/9a67cf0f-5c77-4060-bb06-36f2941497c1" />
