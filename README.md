@@ -15,6 +15,8 @@ this is such a messy wip omg (i have like,,, 5 of these i wanna make for my ocs;
 **Gender**: Male (cis)
 
 **Nationality**: German and Finnish
+
+𐔌˶𐦯
 ⤿ Father — German ; Mother ; Finnish
 
 **Species**: Human
@@ -57,6 +59,12 @@ this is such a messy wip omg (i have like,,, 5 of these i wanna make for my ocs;
 
 # Extra Bits 𐔌˶ᜊ˶𐦯
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
+
+- Stephan has two dogs! A black German Shepherd named Tixie ੯·̀͡⬮ ; and a black Borzoi named Jenjin ੯·̀͡⬮ — they're very loyal yet very playful
+
+- Stephan ***hates*** the pay machines at grocery stores. He has had the cashier (with his card) pay for him before because his brain likes reminding him how many people have touched it and second-guesses if it's been thoroughly cleaned.
+
+- Stephan, when he's very emotional, subconsciously spills into his mother tongue (German). He does have a slight accent, but the more emotional (ex. angry) he gets the thicker it gets.
 
 
 <img width="540" height="960" alt="2212965_NXHscPz2" src="https://github.com/user-attachments/assets/9a67cf0f-5c77-4060-bb06-36f2941497c1" />
